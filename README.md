@@ -1,2 +1,7 @@
-# this-is-for-pr
-This repository for pull request
+# Please follow this step
+  - Just Pray
+  -
+  -
+  -
+  -
+  -
